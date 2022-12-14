@@ -12,3 +12,4 @@ https://home.treasury.gov/policy-issues/coronavirus
 https://equitablegrowth.org/wp-content/uploads/2022/03/US-flag-and-map.jpg
 https://home.treasury.gov/system/files/291/treasury-preview-1080x1080.jpg
 https://unicri.it/sites/default/files/styles/hero_image/public/2020-07/Schermata%202020-07-06%20alle%2017.50.06.png?itok=1V6W2AwC
+https://luskin.ucla.edu/wp-content/uploads/2020/04/COVIDinequities.jpg
